@@ -1,1 +1,1 @@
-# -Visual-Inspection-of-Motorcycle-Connecting-Rods-.-
+# Visual-Inspection-of-Motorcycle-Connecting-Rods
